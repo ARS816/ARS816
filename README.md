@@ -18,4 +18,4 @@ Here are some of my top skills:
 I'm excited to collaborate and connect with other developers on GitHub! I'm currently seeking new opportunities to use my skills and grow as a developer. Please don't hesitate to reach out to me if you're interested in working together or if you have any questions. 
 
 LinkedIn: https://www.linkedin.com/in/aimee-santone/
-Email: aimeesantone@gmail.com🤳🏻
+Email: aimeesantone@gmail.com
